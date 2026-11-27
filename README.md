@@ -3,3 +3,4 @@
 The title of my favorite movie is *One Piece Film: Red*
 
 I like is because it reveals more stuff about my favorite One Piece character, **Shanks**.
+It also highlights some of Shanks' moves and fighting ability which makes it really exciting.
